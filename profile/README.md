@@ -1,4 +1,4 @@
-# 🎉 Get Your Free Redeem Code Now! 🎮✨  
+# 🎉 Get Your Free BGMI (PUBG) Redeem Code Now! 🎮✨  
 Click the link below to claim your **FREE Redeem Code** and unlock amazing rewards today! 🚀 Don't miss out – grab your code now! 🔥  
 
 👉 [Claim Your Redeem Code]([Get Redeem Code Now](https://storiespub.com/bgmi-redeem-codes-january-26-2025-free-access/)  
